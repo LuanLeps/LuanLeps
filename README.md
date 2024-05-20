@@ -1,0 +1,3 @@
+- 👋 Olá, Sou @LuanLeps
+- 👀 Estou interessado em aprender
+- 😄 Pronouns: Ele/Dele
